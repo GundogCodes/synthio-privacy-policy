@@ -1,0 +1,1 @@
+# synthio-privacy-policy
