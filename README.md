@@ -29,4 +29,4 @@ Contact Us
 
 If you have any questions or concerns about this Privacy Policy, please contact us at:
 
-Email: gunishsharma20@gmail.com
+Email: business@gunisharma.com
